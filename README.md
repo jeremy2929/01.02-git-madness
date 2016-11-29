@@ -26,3 +26,10 @@ No meat... No Thanks!
 ### The Pig Stand
 
 That was some good swine!
+### Zombie Plate
+
+I prefer my zombie heads well done but this one was still oozing blood from nostrils
+
+### Worms n Things
+
+The cup of worms was pleasantly warm but Im afraid to know what the other "things" were.
