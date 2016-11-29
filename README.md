@@ -1,8 +1,7 @@
-# 01.02.git-madness
 
-## Instructions
 
-Add your restaurant reviews below - all in the same file! Use a format like:
+### The Pig Stand
+
 
 ### Pig Feet  
 
@@ -15,5 +14,3 @@ I prefer my zombie heads well done but this one was still oozing blood from nost
 ### Worms n Things
 
 The cup of worms was pleasantly warm but Im afraid to know what the other "things" were.
-
-## Reviews
