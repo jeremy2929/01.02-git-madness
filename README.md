@@ -33,3 +33,11 @@ I prefer my zombie heads well done but this one was still oozing blood from nost
 ### Worms n Things
 
 The cup of worms was pleasantly warm but Im afraid to know what the other "things" were.
+
+### Ron's Taco House
+
+Unless you like finding hair in your food, STAY AWAY! You've been warned.
+
+### Pizza Heaven
+
+The chicago style pizza is worth every penny!
